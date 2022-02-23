@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PreetiNirwan
+- 👀 I’m interested in Talent Acquisition | Recruitment | Intrection 
+- 🌱 I’m currently learning a Lot of Things 
+- 💞️ I’m looking to collaborate With People With new Ideas | Looking for Job 
+- 📫 How to reach me https://www.linkedin.com/in/preeti-n
